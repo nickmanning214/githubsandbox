@@ -2,4 +2,4 @@
 
 By Nick Manning
 
-Nick Manning was born in the year 1990.
+Nick Manning was born in the year 1990. He has lived in Albany County as well as New York City.
